@@ -1,0 +1,2 @@
+# Fazi
+Earn money
